@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @ThanhTuNguyen
 - 👀 I’m interested in MUSIC
-- 🌱 I’m currently learning AI
 - 💞️ I’m looking to collaborate on Fintech
 - 📫 How to reach me +84989429616 thanh.tu.nguyen0608@gmail.com skype: tunt0168
 <!---
